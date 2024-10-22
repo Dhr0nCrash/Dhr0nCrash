@@ -1,4 +1,4 @@
-- 👋 Hi, 👋 Hi, I’m @Dhr0nCrashR... or am I? Honestly, I’m still waiting for the identity crisis to resolve.                                 Could be me. Could be someone else. Stay tuned. 🤷‍♂️
+- 👋 Hi, I’m @Dhr0nCrashR... or am I? Honestly, I’m still waiting for the identity crisis to resolve.                                 Could be me. Could be someone else. Stay tuned. 🤷‍♂️
 - 👀 I’m interested in ... Mastering the art of procrastination, one task at a time
 - 🌱 I’m currently learning ... How to make sense of my life’s to-do list. So far, no luck.
 - 💞️ I’m looking to collaborate on ... Building a time machine, so I can finally finish yesterday’s tasks tomorrow.
