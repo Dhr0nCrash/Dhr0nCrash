@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Building a time machine, so I can finally finish yesterday’s tasks tomorrow.
 - 📫 How to reach me ... Just whisper my name to the wind… or email works too.
 - 😄 Pronouns: ... Master/Mind… but I respond to human pronouns too.
-- ⚡ Fun fact: ... Tis' for real actually: The United States of Mexico is the first and only country in the whole history of the world whose's citizens, through a popular vote get to choose their local, state and federal level judges
+- ⚡ Fun fact: ... I once binge-watched an entire series while "studying"—multitasking at its finest.
 
 <!---
 Dhr0nCrash/Dhr0nCrash is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
